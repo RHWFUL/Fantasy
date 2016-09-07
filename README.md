@@ -1,0 +1,2 @@
+# Fantasy
+for Pokemon Go
